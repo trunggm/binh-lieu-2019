@@ -1,6 +1,7 @@
 # Lịch trình Bình liêu 25-27/10/2019
 
 ## 25/10/2019 [Bản đồ](https://www.google.com/maps/dir/AEON+MALL+Long+Bi%C3%AAn,+%C4%90%C6%B0%E1%BB%9Dng+C%E1%BB%95+Linh,+Long+Bi%C3%AAn,+H%C3%A0+N%E1%BB%99i/Kh%C3%A1ch+S%E1%BA%A1n+Th%C3%A0nh+%C4%90%E1%BA%A1t,+M%C3%B4ng+D%C6%B0%C6%A1ng,+C%E1%BA%A9m+Ph%E1%BA%A3,+Qu%E1%BA%A3ng+Ninh,+Vi%E1%BB%87t+Nam/@20.9606571,106.3058201,10z/data=!4m17!4m16!1m5!1m1!1s0x3135a96abb995685:0x53e69c6308f184c1!2m2!1d105.8989238!2d21.0268814!1m5!1m1!1s0x314b024925da4da5:0x961f4004ec7d73b2!2m2!1d107.3291114!2d21.0728057!2m1!1b1!3e0!5i1)
+![alt text][https://photos.app.goo.gl/J4MaUTgER9TqEASE6]
 - 19h15, có mặt  tại AEON Mall Long Biên
 - 19h30, xuất phát theo hướng quốc lộ 18
 - Khoảng 20h30-21h00, Ăn tối tại Sao Đỏ trên đường đi.
