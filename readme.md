@@ -14,10 +14,10 @@ Note: Địa điểm nghỉ là khách sạn Thành Đạt [bản đồ](https:/
 - 6h00, dậy vệ sinh cá nhân xong đi ăn sáng
 - 7h00, tiến về Bình Liêu
 - 8h30, có mặt tại thị trấn Bình Liêu, vào chợ mua đồ, hoặc lượn lờ linh tinh, ở chợ Bình Liêu, lấy lều trại.
-- 9h30, đi mốc 1297
+- 9h30, đi mốc 1327
 - 11h00, di chuyển tới cửa khẩu Hoành Mô, sau đó đi về thị trấn Đồng Văn ăn trưa, chuẩn bị đồ cắm trại.
-- 1h00, di chuyển tới thác sông Moóc chơi
-- 3h30-4h00, di chuyển về điểm cắm trại trên núi Cao Ly
+- 1h00, di chuyển tới thác Khe Vằn chơi
+- 4h00, di chuyển về điểm cắm trại trên núi Cao Ly
 - Tổ chức hạ trại, nấu nướng, ăn uống, ca hát và nghỉ ngơi trên núi Cao Ly.
 
 ## 26/10/2019: 
